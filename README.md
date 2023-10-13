@@ -1,1 +1,19 @@
-# NEW-SERVER
+# Discord account got termed!
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
+new server https://discord.gg/ykuEQgYAW
